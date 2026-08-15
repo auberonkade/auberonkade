@@ -1,16 +1,62 @@
-## Hi there 👋
+ㅤㅤㅤㅤㅤ
+check out my otherㅤgithubsㅤㅤ:ㅤㅤ[march](https://github.com/hoIlandmarch)ㅤ[colt](https://github.com/coItseavers)ㅤ[main](https://github.com/needyourbiood)ㅤ[yflsmp](https://github.com/yflsmp)ㅤ[ewroon](https://github.com/EWROON)ㅤ[naukosick](https://github.com/naukosick)ㅤ++
+ㅤ
+ㅤ
+ㅤㅤㅤ
 
-<!--
-**auberonkade/auberonkade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
