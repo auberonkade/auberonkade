@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤ
-check out my otherㅤgithubsㅤㅤ:ㅤㅤ[march](https://github.com/hoIlandmarch)ㅤ[colt](https://github.com/coItseavers)ㅤ[main](https://github.com/needyourbiood)ㅤ[yflsmp](https://github.com/yflsmp)ㅤ[ewroon](https://github.com/EWROON)ㅤ[naukosick](https://github.com/naukosick)ㅤ++
+check out my otherㅤgithubsㅤㅤ:ㅤㅤ[march](https://github.com/hoIlandmarch)ㅤ[colt](https://github.com/coItseavers)ㅤ[main](https://github.com/needyourbiood)ㅤ[yflsmp](https://github.com/yflsmp)ㅤ[ewroon](https://github.com/EWROON)ㅤ[naukosick](https://github.com/naukosick)ㅤ[strattland](https://github.com/strattIand)ㅤㅤ++
 ㅤ
 ㅤ
 ㅤㅤㅤ
